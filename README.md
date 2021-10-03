@@ -1,4 +1,4 @@
-*Citizen, 19y Offensive Security Engineer For PowerAPI*.
+*Citizen, 19y Offensive Security Engineer.*
 
 ────────────────────────────────
 
