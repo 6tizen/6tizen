@@ -1,4 +1,4 @@
-*Scared 19y, Akatsuki Creator*.
+*Citizen 18y, Akatsuki Member*.
 
  ────────────────────────────
 
